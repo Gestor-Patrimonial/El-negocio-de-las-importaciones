@@ -1,1 +1,2 @@
 # El-negocio-de-las-importaciones
+Las importaciones desde Norteamérica, que habían llegado a 165 millones en 1913, decayeron en 1914 hasta menos de 100, pero aumentaron desde el año siguiente en tal proporción que en 1919 eran 529 millones, igual al 85,5 %o y en 1920,720 millones. A partir de ese año hasta 1930, las importaciones desde Estados Unidos fueron alternativamente similares y superiores a las procedentes de Gran Bretaña. 
